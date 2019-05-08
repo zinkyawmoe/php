@@ -1,2 +1,2 @@
 # star_looping
-ya p anar
+i'm a beginner
